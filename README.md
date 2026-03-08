@@ -1,2 +1,2 @@
 # Portfolio Alane Kennya
-portfolio de alane kennya
+portfolio de Alane Kennya
